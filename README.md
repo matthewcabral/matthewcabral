@@ -163,6 +163,7 @@ Feel free to reach out or connect with me:
 ---
 
 > _ 💭 “Code is like humor. When you have to explain it, it’s bad.” – Cory House_
+---
 > _ 💭 “Smart people learn from their mistakes and wise people learn from somebody else’s mistakes.” – Jim Paul_
 
 Thanks for stopping by! ⭐
